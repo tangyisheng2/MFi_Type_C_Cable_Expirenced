@@ -1,0 +1,1 @@
+# MFi_Type_C_Cable_Expirenced
